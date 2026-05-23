@@ -1,7 +1,12 @@
 <br>
 <br>
 <p align="center">
-      <img src="[https://files.catbox.moe/9pcesu.png](https://files.catbox.moe/qggo2l.png)"> 
+      <br>
+      bagel  　ᵒʳ  　rudo
+      <br>
+      it / its
+      <br>
+      <img src="https://files.catbox.moe/qggo2l.png"> 
      <br>
   <a href="https://rentry.co/scrapped">rentry</a> 　 　𐙚　 　<a href="https://bagel.atabook.org">atabook</a>
       <br>
