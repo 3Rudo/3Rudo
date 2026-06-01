@@ -6,7 +6,7 @@
       <br>
       it / its
       <br>
-      <img src="https://media1.tenor.com/m/BsUDMa8ixKkAAAAC/gachiakuta-enjin-gachiakuta.gif"> 
+      <img src="https://files.catbox.moe/k539nw.png"> 
      <br>
   <a href="https://rentry.co/269">rentry</a> 　 　𐙚　 　<a href="https://bagel.atabook.org">atabook</a>
       <br>
