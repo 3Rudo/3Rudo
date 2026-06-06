@@ -1,5 +1,4 @@
-<br>
-<br>
+
 <p align="center">
       <br>
       bagel  　or  　rudo
@@ -18,5 +17,4 @@
       <br><Br>
       
 </p>
-<br>
-<br>
+
