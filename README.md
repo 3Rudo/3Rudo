@@ -7,6 +7,8 @@
       <img src="https://files.catbox.moe/k539nw.png"> 
      <br>
   <a href="https://rentry.co/269"><sub>rentry</sub></a> 　 　𐙚　 　<a href="https://bagel.atabook.org"><sub>atabook</sub></a>
+      <br>
+        <img src="https://files.catbox.moe/pygurm.png"> 
       <br><br>
                   <img src="https://komarev.com/ghpvc/?username=butcherys&label=🐺&color=grey">
       <br>
@@ -20,7 +22,8 @@
       <br>may disconnect at random times
       <br>sometimes in gachiakuta area + rudo superfan thats my boy
       <br>if i have a problem with you or you have a problem with my friends ill just hide / block 
-      <br>^ if you ask somewhere  ill maybe unhide</sup>
+      <br>^ if you ask somewhere  ill maybe unhide
+      <br>dont be afraid to int! if anything im more scared of you haha</sup>
 </details>
 </div>
 <p align="center">
