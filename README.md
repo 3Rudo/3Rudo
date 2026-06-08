@@ -8,7 +8,7 @@
      <br>
   <a href="https://rentry.co/269"><sub>rentry</sub></a> 　 　𐙚　 　<a href="https://bagel.atabook.org"><sub>atabook</sub></a>
       <br>
-        <img src="https://files.catbox.moe/pygurm.png"> 
+        <img src="https://files.catbox.moe/pygurm.png">     <img src="https://files.catbox.moe/w0cig4.png"> 
       <br><br>
                   <img src="https://komarev.com/ghpvc/?username=butcherys&label=🐺&color=grey">
       <br>
