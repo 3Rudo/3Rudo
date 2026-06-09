@@ -2,7 +2,7 @@
 <p align="center">
       <br>
       <sub>bagel  　or  　rudo</sub>
-      <br>       <sub>it / its  　infp 2w3</sub>
+      <br>       <sub>it / its  　infp 2w3 269 so/sx</sub>
       <br>
       <img src="https://files.catbox.moe/k539nw.png"> 
      <br>
