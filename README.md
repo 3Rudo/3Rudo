@@ -1,18 +1,18 @@
 
 <p align="center">
       <br>
-      <sub>bagel  　or  　rudo</sub>
+      bagel  　or  　rudo
       <br>       <sub>it / its  　infp 2w3 269 so/sx</sub>
       <br>
       <img src="https://files.catbox.moe/k539nw.png"> 
      <br>
-  <a href="https://rentry.co/269"><sub>rentry</sub></a> 　 　𐙚　 　<a href="https://bagel.atabook.org"><sub>atabook</sub></a>
+  <a href="https://rentry.co/269">rentry</a> 　 　𐙚　 　<a href="https://bagel.atabook.org">atabook</a>
       <br>
         <img src="https://files.catbox.moe/pygurm.png">     <img src="https://files.catbox.moe/w0cig4.png"> 
       <br><br>
                   <img src="https://komarev.com/ghpvc/?username=butcherys&label=🐺&color=grey">
       <br>
-      <a href="https://rentry.co/3RRudo"><sub>ponytown info</sub></a>
+      <a href="https://rentry.co/3RRudo">ponytown info</a>
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
