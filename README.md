@@ -5,13 +5,13 @@
       <br>       <sub>it / its  　infp - 2w3 (so)2 (sp)6 (so)9</sub>
       <br> i am feeling    　 ->　<a href="https://www.imood.com/users/appleday"><img src="https://moods.imood.com/display/uname-appleday/fg-ffffff/trans-1/imood.gif" alt="The current mood of appleday at www.imood.com" border="0"></a>
       <br>
-      <img src="https://deltarune.wiki/images/Flowery_battle_Floradinn_kiss.gif?cb=4nvjsw&h=thumb.php&f=Flowery_battle_Floradinn_kiss.gif"> 
+      <img src="https://files.catbox.moe/ml5lqu.gif"> 
      <br>
   <a href="https://rentry.co/fizzyduo">rentry</a> 　 　𐙚　 　<a href="https://bagel.atabook.org">atabook</a>
       <br>
         <img src="https://files.catbox.moe/pygurm.png">     <img src="https://files.catbox.moe/w0cig4.png"> 
       <br><br>
-                  <img src="https://komarev.com/ghpvc/?username=butcherys&label=🐺&color=grey">
+                  <img src="https://komarev.com/ghpvc/?username=butcherys&label=✿&color=grey">
       <br>
       <a href="https://rentry.co/3RRudo">ponytown info</a>
 </p>
