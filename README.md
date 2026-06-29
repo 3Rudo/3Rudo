@@ -6,7 +6,7 @@
       <br>
       <img src="https://files.catbox.moe/ml5lqu.gif"> 
      <br>
-  <a href="https://rentry.co/fizzyduo">rentry</a> 　 　𐙚　 　<a href="https://bagel.atabook.org">atabook</a>
+  <a href="https://rentry.co/omegaflowery">rentry</a> 　 　𐙚　 　<a href="https://bagel.atabook.org">atabook</a>
       <br>
         <img src="https://files.catbox.moe/pygurm.png">     <img src="https://files.catbox.moe/w0cig4.png"> 
       <br><br>
