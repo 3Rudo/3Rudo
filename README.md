@@ -2,8 +2,7 @@
 <p align="center">
       <br>
       bagel  　or  　rudo
-      <br>       <sub>it / its  　infp - 2w3 (so)2 (sp)6 (so)9</sub>
-      <br> i am feeling    　 ->　<a href="https://www.imood.com/users/appleday"><img src="https://moods.imood.com/display/uname-appleday/fg-ffffff/trans-1/imood.gif" alt="The current mood of appleday at www.imood.com" border="0"></a>
+      <br>       <sub>it / its  　infp - 2w3 269 so/sx</sub>
       <br>
       <img src="https://files.catbox.moe/ml5lqu.gif"> 
      <br>
