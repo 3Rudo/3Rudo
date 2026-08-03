@@ -1,7 +1,7 @@
 
 <p align="center">
       <br>
-      bagel  　or  　rudo
+      bagel  　or  　dess
       <br>       <sub>it / its  　infp - 2w3 269 so/sx</sub>
       <br>
       <img src="https://files.catbox.moe/ml5lqu.gif"> 
