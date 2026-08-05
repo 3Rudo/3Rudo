@@ -11,7 +11,6 @@
       <br><br>
                   <img src="https://komarev.com/ghpvc/?username=butcherys&label=✿&color=grey">
       <br>
-      <a href="https://rentry.co/3RRudo">ponytown info</a>
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
