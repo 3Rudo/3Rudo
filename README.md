@@ -1,10 +1,8 @@
 
 <p align="center">
       <br>
-      bagel  　or  　dess
-      <br>       <sub>it / its  　infp - 2w3 269 so/sx</sub>
-      <br>
-      <img src="https://files.catbox.moe/ml5lqu.gif"> 
+      bagel  　or  　sans
+      <br>       <sub>it / its  　infp - 2w3 so269</sub>
      <br
       <br>
         <img src="https://files.catbox.moe/pygurm.png">     <img src="https://files.catbox.moe/w0cig4.png"> 
