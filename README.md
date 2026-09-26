@@ -2,7 +2,7 @@
 <p align="center">
       <br>
       bagel  　or  　sans
-      <br>       <sub>it / its  　infp - 2w3 so269</sub>
+      <br>       <sub>it / its  　infp </sub>
      <br
       <br>
         <img src="https://files.catbox.moe/pygurm.png">     <img src="https://files.catbox.moe/w0cig4.png"> 
